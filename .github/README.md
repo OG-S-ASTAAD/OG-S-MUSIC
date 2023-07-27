@@ -8,7 +8,7 @@
   <img src="https://te.legra.ph/file/1f070ea3147e2a3ef44e4.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ](https://t.me/PanjabXMusicBot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [𝙋𝘼𝙉𝙅𝘼𝘽 ✘ 𝙈𝙐𝙎𝙄𝘾](https://t.me/PanjabXMusicBot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
